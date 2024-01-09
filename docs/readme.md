@@ -2,7 +2,7 @@
 
 _Consultant at PwC based in Trondheim NO_ <br> 
 
-[Email](mailto:brederimer@gmail.com) / [LinkedIn](https://www.linkedin.com/in/brede-rimer-bjerke/
+[Email](mailto:brederimer@gmail.com) / [LinkedIn](https://www.linkedin.com/in/brede-rimer-bjerke/)
 
 ## Experience
 
